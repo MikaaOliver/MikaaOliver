@@ -1,8 +1,8 @@
 ### Oiii! 👋 
 
 •studying programming 🖱💻
-•like to gaming🎮
-•and music for relax 🎶😎
+•🎮I like to game and listen to music to relax🎮🎶😎
+
 
 <div>
   <a href="https://github.com/MikaaOliver">
