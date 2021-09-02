@@ -1,4 +1,4 @@
-### Hello 👋 
+### Oiii! 👋 
 
 •studying programming 🖱💻
 •like to gaming🎮
