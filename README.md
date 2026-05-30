@@ -1,6 +1,6 @@
-### Oiii! 👋 
+### ! 👋 
 
-•studying programming 🖱💻
+• Security 🖱💻
 •🎮I like to game and listen to music to relax🎮🎶😎
 
 
